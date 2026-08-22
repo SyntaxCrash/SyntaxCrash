@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am a young programmer i code for fun
+I am here to do high school projects in cybersecurity.
 
 
 ## 🌐 Socials:
