@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello,I am here to do high school projects in cybersecurity, and i code little game for fun when im busy<br>
+Hello,I am here to do high school projects in cybersecurity, and i code little game for fun when im bored<br>
 
 
 ## 🌐 Socials:
