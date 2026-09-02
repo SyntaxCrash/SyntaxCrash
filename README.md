@@ -1,6 +1,6 @@
 # 💫 About Me:
 
-Hello, I am here to do high school projects in cybersecurity, and I code little games for fun when I'm busy. 💻🔐🎮<br>
+Hello, I am here to do high school projects in cybersecurity, and I code little games for fun when I'm bored. 💻🔐🎮<br>
 
 I'm currently learning cybersecurity, programming and different technologies while working on personal projects.<br>
 
